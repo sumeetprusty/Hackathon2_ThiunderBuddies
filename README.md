@@ -1,1 +1,1 @@
-# Hackathon2_ThiunderBuddies
+# Hackathon2_ThunderBuddies
